@@ -8,7 +8,7 @@
 
 - a) Articulos
 
-- b) Posesivos o posesivos demostrativos: deine diese.......etc.
+- b) Pronombres posesivos o demostrativos: deine diese.......etc.
 
 - c) Adjetivos: der hinterlistige, die schwierige,verzwichte.......etc
 
